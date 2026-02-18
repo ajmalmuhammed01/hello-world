@@ -5,3 +5,4 @@ these are my skills
 i can dance 
 i can walk 
 i can run
+my place is earth and it has lot of specifications
